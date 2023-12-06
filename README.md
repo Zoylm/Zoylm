@@ -5,3 +5,6 @@ Hi there 👋,I'm Zoey
 - 📫 Let's forget about the contact information, because I am a legitimate social anxiety. Forget it, let's give it to everyone. HHH, you can still make friends. Everyone can add my QQ: 2066874353 (please remember to leave a note)
 - ⚡ Fun fact: I really don't know anything, I'm still trying to figure it out
 - -->Welcome everyone to my website to learn and make friends together！
+
+You are my ![Zoey](https://profile-counter.glitch.me/Zoey/count.svg) visitor.Thank you!❤️❤️❤️
+
